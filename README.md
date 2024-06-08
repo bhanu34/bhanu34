@@ -2,7 +2,7 @@
 Bengaluru, Karnataka | +91 8688370485 | bhanu93@live.com
 
 ## PROFESSIONAL SUMMARY
-6 years experience of leading and delivering quality engineering solutions. Excited about solving complex and unique engineering challenges. Experience in managing long-term, cross-team projects. I bring knowledge and expertise from experience in Healthcare, Oil & gas, Electronics, Home appliances and Heavy industries with skills in Non-Linear Static & Dynamic Structural analysis, Vibrations, Fatigue, Thermal, Electronics Thermal Management and Reliability, Process Integration & Design Optimization (PIDO), Project management and Data analysis
+7 years experience of leading and delivering quality engineering solutions. Excited about solving complex and unique engineering challenges. Experience in managing long-term, cross-team projects. I bring knowledge and expertise from experience in Healthcare, Oil & gas, Electronics, Home appliances and Heavy industries with skills in Non-Linear Static & Dynamic Structural analysis, Vibrations, Fatigue, Thermal, Electronics Thermal Management and Reliability, Process Integration & Design Optimization (PIDO), Project management and Data analysis
 
 ## SKILL SET
 
